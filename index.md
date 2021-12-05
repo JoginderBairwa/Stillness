@@ -8,8 +8,8 @@ Stillness means to be still, to be calm, to be quiet. It is the state in which y
 
 One who conquered the excitement of happiness and blue vibes of sadness has already conquered all the chaos within himself/herself. He/she will never get affected by people’s talk. Try to make them hurt or irritate, they will reply with ignorance. Stillness is such a great quality of human that helps him/her to work under any condition without getting affected.
 
-[Li![processingly-2pUP1Ts1bmo-unsplash](https://user-images.githubusercontent.com/51175582/144762642-5a4797d6-0173-4c55-945d-ff09ce94f4f4.jpg)
-nk](url) and ![Image](src)
+[processingly-2pUP1Ts1bmo-unsplash](https://user-images.githubusercontent.com/51175582/144762642-5a4797d6-0173-4c55-945d-ff09ce94f4f4.jpg)
+
 
 ## How To Get “Stillness”?
 I can only tell you the way by which I have experienced/gained the stillness. It is “Resilience“. I know you may be thinking why am I talking about this again and again. But resilience really makes me the controller of my senses. Resilience, an ability of “not to speak” until and unless it’s super necessary, brings stillness in me. Now I only talk if it is true, necessary, and kind.
