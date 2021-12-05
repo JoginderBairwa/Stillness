@@ -11,18 +11,18 @@ One who conquered the excitement of happiness and blue vibes of sadness has alre
 [Li![processingly-2pUP1Ts1bmo-unsplash](https://user-images.githubusercontent.com/51175582/144762642-5a4797d6-0173-4c55-945d-ff09ce94f4f4.jpg)
 nk](url) and ![Image](src)
 
-##How To Get “Stillness”?
+## How To Get “Stillness”?
 I can only tell you the way by which I have experienced/gained the stillness. It is “Resilience“. I know you may be thinking why am I talking about this again and again. But resilience really makes me the controller of my senses. Resilience, an ability of “not to speak” until and unless it’s super necessary, brings stillness in me. Now I only talk if it is true, necessary, and kind.
 
-##How Stillness Helps You In Daily Life?
+## How Stillness Helps You In Daily Life?
 Stillness gives you an enormous amount of patience to listen to the people. You know, it is often our excitement to say our things or to express our perspective that makes most of the misunderstandings. We don’t even try to listen completely, we only focus to express our perspectives or things. Once we start listening to the people completely until they stop talking, we understand and felt the way they are thinking and feeling. You need to learn to listen.
 
-##My Own Experience
+## My Own Experience
 Whenever I have to decide on something I became silent first, both from inside and outside. This makes me unbiased and open to adapt new perspectives. Becoming silent from the inside makes me discover the hidden possibilities and future consequences of an action.
 
 When I talk to my people, they think that I predict the future by my spiritual abilities, but it’s not true. Most of the time, it’s consciousness, the stillness that I have created within me that allows me to see the future possibilities. I am short of words in explaining these things because they can be experienced only.
 
-##Final Words
+## Final Words
 Although this is my experience and way of explaining, don’t rely on me over that. Explore and experience yourself. Stillness is such a great quality of a human being that lets him avoid chaos and make him super conscious about himself.
 
 Explore, Explore & Explore….
