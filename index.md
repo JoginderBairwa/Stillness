@@ -3,12 +3,13 @@
 # “Stillness” Can Make You A Superhuman
 
 I was observing chaos in my neighborhood from my balcony and I felt so bad for the people out there. They were fighting over little issues which we don’t even talk about. But their misunderstandings and unquiet nature made a silly topic into a big fight. I paused my breath for a moment and tried to think of the reason behind this chaos. And I found out that there’s is a big yet common quality missing in humans, “Stillness“.
-##What Is Stillness?
+
+## What Is Stillness?
 Stillness means to be still, to be calm, to be quiet. It is the state in which you are conscious about your surroundings and ofcourse about yourself. Saying it more clearly, it means to be still in both negative and positive situations. Not to get excited when you are happy, and not to get demotivated when you are sad. These teachings have also been explained in Geeta and Shiv Puraan.
 
 One who conquered the excitement of happiness and blue vibes of sadness has already conquered all the chaos within himself/herself. He/she will never get affected by people’s talk. Try to make them hurt or irritate, they will reply with ignorance. Stillness is such a great quality of human that helps him/her to work under any condition without getting affected.
 
-[processingly-2pUP1Ts1bmo-unsplash](https://user-images.githubusercontent.com/51175582/144762642-5a4797d6-0173-4c55-945d-ff09ce94f4f4.jpg)
+![processingly-2pUP1Ts1bmo-unsplash](https://user-images.githubusercontent.com/51175582/144792636-f04afddd-19e0-40f9-a7c9-b2c967ac17b5.jpg)
 
 
 ## How To Get “Stillness”?
